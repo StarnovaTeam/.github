@@ -5,4 +5,5 @@ We're a team of people from around the globe producing unique content for people
 We work on projects that push the boundaries and break the limits of what can be done within our work. We try to create a drive through our passions that pushes the boundaries of our creations to reach maximum potential. Here, you can see the team that makes all that happen. We are all from many different places and backgrounds. Fostering diversity and understanding within our work as well as our team. We're always looking for talented and dedicated people to join us, and we hope you can be one of them.
 
 **Interested in our work? Check us out!**
+
 https://starnova.dev/
